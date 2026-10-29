@@ -1,2 +1,2 @@
 Gnr Ansah Charles
-66 Arty Reg
+66 Arty Regiment
