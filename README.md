@@ -1,4 +1,4 @@
-# **ABOUT MY SELF**
+# *ABOUT MY SELF*
 I am 221072 Gnr Ansah Charles. I am 24 years old and I was born to Mr. and Mrs. Antwi on 21st September 2002. I come from Konongo in the Eastern of Ghana and I live Accra, Odorkor currently.
 # EDUCATIONAL LEVEL
 I began my education at Konongo Mines Basic School, where I acquired the fundament knowledge and skills needed for further studies. I successfully completed my primary school in the year 2014 and continued to Konongo M/A junior high school, where I gained more knowledge and developed my academic abilities. After completing junior high school in the year 2017, I proceeded to Collins senior high school in the Asante Akim North District to continue my education. throughout my academic journey, I have worked hard to improve my knowledge, skills and understanding.
